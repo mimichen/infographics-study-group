@@ -1,0 +1,1 @@
+# infographics-study-group
